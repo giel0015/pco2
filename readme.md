@@ -1,9 +1,1 @@
-Alexander Giele staat voor een klas vol nieuwsgierige studenten, een glimlach speelt rond zijn lippen terwijl hij zich klaarmaakt om zijn favoriete vak te geven: Personal Professional & Development Essentials (PDD-E). Het lokaal ademt innovatie. Aan de muren hangen posters van iconische ontwerpen en het geroezemoes van studenten die hun laptops en notitieboeken tevoorschijn halen vult de ruimte.
-
-Als ervaren innovatiemanager en gepassioneerd docent heeft Alexander een unieke kijk op productontwikkeling. Zijn jarenlange ervaring in de financiële wereld en zijn expertise in data-analyse, softwareontwikkeling en business strategy brengen een frisse en pragmatische benadering naar het klaslokaal. Vandaag staat het ontwerpen van klantgerichte oplossingen centraal.
-
-Alexander begint de les met een anekdote uit zijn tijd bij een toonaangevende financiële instelling. Hij vertelt hoe hij samen met zijn team een baanbrekend product ontwikkelde dat de klantbeleving totaal veranderde. "Het ging er niet om de beste technologie te hebben," zegt hij tegen zijn studenten, "maar om te begrijpen wat de klant écht nodig heeft." Zijn ogen twinkelen terwijl hij hen aanspoort om creatief te denken, buiten de gebaande paden te treden en te focussen op waardecreatie.
-
-De klas hangt aan zijn lippen, niet alleen vanwege zijn diepgaande kennis en inzicht, maar ook vanwege zijn vermogen om complexe theorieën om te zetten in praktische, toepasbare lessen. Elke student voelt zich betrokken en uitgedaagd om zijn eigen ideeën te formuleren en te toetsen.
-
-Aan het einde van de les weet Alexander zeker dat hij weer wat vonkjes heeft aangestoken. Hij ziet het in de ogen van zijn studenten; een nieuw besef dat productontwikkeling veel meer is dan een proces - het is een kunst. Terwijl hij zijn spullen inpakt, weet hij dat hij weer een stap dichterbij is gekomen om de volgende generatie innovatoren en probleemoplossers te inspireren.
+En nu weer een nieuwe update
